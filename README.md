@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @kritikasinghi
+- 🌱 I’m currently learning digital marketing
+- 💞️ I’m creating a blogging website on the use of AI tools 
+- 📫 You can reach me by my website kritikasinghi.co.in
